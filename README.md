@@ -251,6 +251,6 @@ Planned:
 
 ---
 
-Made with love by the Avax Farms Team
+Designed By Okpala Emmanuel on behalf of Avax Team
 
 Fresh from the Farm - Building the future of sustainable agriculture
